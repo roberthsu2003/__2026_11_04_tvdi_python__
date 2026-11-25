@@ -23,3 +23,8 @@ https://youtube.com/live/0KCFBXpJ5Sg
 https://www.youtube.com/watch?v=wTdh-2ELBfI
 
 ---
+
+## 2026_11_25_上午
+https://www.youtube.com/watch?v=5eMYny25E1o
+
+---
